@@ -4,8 +4,8 @@ As we all know, Tayo the Mayo is the best director on this planet. However he's 
 
 
 
-Therefore, me, Lynn, his kindest and smartest friend, step out, and build this website for me.
+Therefore, me, Lynn, his kindest and smartest friend, step out, and build this website for him.
 
 
 
-Enjoy.
+You are welcome tayo. Enjoy.
